@@ -12,4 +12,4 @@ Meu nome é Amanda
 
  @AmandaMartins
 
- ![](https://media.tenor.com/_pUIGukgkwUAAAAM/real-life-batman.gif)
+ ![](https://media.tenor.com/092IX8zLDF4AAAAM/starfire-and.gif)
